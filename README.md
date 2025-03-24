@@ -6,7 +6,7 @@
 
 👷 Sou formado em Engenharia Civil - Universidade Ceuma
 
-👨‍🎓 Busco oportunidade de stágios para aplicar meus conhecimentos na área de programação
+👨‍🎓 Busco oportunidade de estágios para aplicar meus conhecimentos na área de programação
 
 📫 [Acesse o meu Linkedin](https://www.linkedin.com/in/islas-matheus/)
 
